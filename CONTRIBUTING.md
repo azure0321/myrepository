@@ -1,1 +1,1 @@
-thanks
+thank you very much 
